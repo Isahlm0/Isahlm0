@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on crescimento
 - 📫 How to reach me 18996780654
 - 😄 Pronouns: lm
-- ⚡ Fun fact brasil
+- ⚡ Fun fact🇦🇺🇧🇷
 
 <!---
 Isahlm0/Isahlm0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
