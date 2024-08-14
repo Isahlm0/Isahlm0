@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning tecnologia
 - 💞️ I’m looking to collaborate on crescimento
 - 📫 How to reach me 18996780654
-- 😄 Pronouns: lm
+- 😄 Pronouns: lima
 - ⚡ Fun fact🇦🇺🇧🇷
 
 <!---
